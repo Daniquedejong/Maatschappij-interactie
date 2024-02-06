@@ -1,1 +1,1 @@
-# CMD-Maatschappij-interactie
+# Maatschappij-interactie
